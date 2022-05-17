@@ -1,1 +1,1 @@
-Directory read me
+Hmmm, I'm learning new thing everyday
